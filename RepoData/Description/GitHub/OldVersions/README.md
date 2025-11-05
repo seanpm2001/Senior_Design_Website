@@ -1,0 +1,1 @@
+🤖️➡️🤖️🌐️ The official source repository for the website of the Senior Design project, a place of research and discussion for making computers easier for everyone, especially the elderly and the inexperienced. 
